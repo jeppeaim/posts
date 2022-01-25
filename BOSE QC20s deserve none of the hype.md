@@ -14,9 +14,9 @@ What I would recommend is some kind of noise-cancelling headphones, the benefits
 ### The one benefit of QC20s, and the shortcomings of my knowledge
 There is however, one thing about the QC20s that makes them a contender for competitive gaming, a very *weak* contender, but a contender nonetheless and that is the fact that they are in-ears, and not over-ears or on-ears. This means that they can be used at LAN because an extra pair of noise cancelling on-ears can be put over the QC20s (these are provided by the LAN organizer or w.e,). I've heard (and find it reasonable) that over-ears are allowed at some LANs, but in-ears will probably always be alowed, I can't think of a situation where they would ban in-ears but not over-ears. And because in-ears will always be aloud, it only makes sense to also use them outside of a LAN so that you don't have to adjust your ears every time you go to LAN. 
 
-Anyway this is where my knowledge falls short, I don't know of any other noise-cancelling *in-ear* headphones because I've never looked them up, I don't want any lol. But I guarantee you there are better ones out there.
+Anyway this is where my knowledge falls short, I don't know of any other noise-cancelling *in-ear* headphones because I've never looked them up, I don't want any lol. But I guarantee you there are better ones out there. I am going to research this eventually, it's just low on my list of priorities at the moment. 
 
-BUT here's a reddit list of ANC In-Ears that I have glanced at, it seems aight https://www.reddit.com/r/berkeley/comments/jejfnc/active_noise_cancelling_headphones_buyers_guide/
+BUT in the mean time, here's a reddit list of ANC In-Ears that I have glanced at, it seems aight https://www.reddit.com/r/berkeley/comments/jejfnc/active_noise_cancelling_headphones_buyers_guide/
 
 I do however have plenty of knowledge about over-ear headphones:
 ---
