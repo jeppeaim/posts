@@ -17,6 +17,7 @@ There is however, one thing about the QC20s that makes them a contender for comp
 Anyway this is where my knowledge falls short, I don't know of any other noise-cancelling *in-ear* headphones because I've never looked them up, I don't want any lol. But I guarantee you there are better ones out there. I am going to research this eventually, it's just low on my list of priorities at the moment. 
 
 BUT in the mean time, here's a reddit list of ANC In-Ears that I have glanced at, it seems aight https://www.reddit.com/r/berkeley/comments/jejfnc/active_noise_cancelling_headphones_buyers_guide/
+(note that the $40 dollar headphones at the top of the list sound better than the QC20s)
 
 I do however have plenty of knowledge about over-ear headphones:
 ---
